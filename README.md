@@ -7,4 +7,5 @@ meu hobby é jogar videogames
 ele/delas
 signo ♊ (gêmeos)
 é isso valeu falou 
+
 ![RxOLVP](https://github.com/user-attachments/assets/97de7170-81df-4a91-8328-78a5957d9b45)
