@@ -6,11 +6,17 @@ tenho 15 anos
 
 estou aqui pra aprender sobre programação
 
+estou me desenvolvendo na linguagem javascript
+
 meu hobby é jogar videogames
+
+utilizo a plataforma Alura
 
 ele/delas
 
 signo ♊ (gêmeos)
+
+você pode entrar em contato comigo em maximo.moreira@escola.pr.gov.br
 
 é isso valeu falou 
 
