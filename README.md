@@ -25,3 +25,5 @@ você pode entrar em contato comigo em maximo.moreira@escola.pr.gov.br
 ![crunch-cat](https://github.com/user-attachments/assets/0cd877f4-d21c-4d28-8ccd-fa21d554f7c7)
 
 ![honey-bun-homeless](https://github.com/user-attachments/assets/8ea3c094-8a03-4ca1-be25-95bcd6d36879)
+
+![lx1dv6tpgbnb1](https://github.com/user-attachments/assets/d5452339-373e-4028-b3e1-dab477828c9a)
